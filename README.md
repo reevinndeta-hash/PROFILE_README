@@ -55,7 +55,7 @@ Deliverables are production-ready with clear handoff files (Google Docs / Notion
 ---
 
 ## Social proof
-"Replace this with one short client testimonial (name/role/company if allowed)."
+"wwww.leisuretipsltd.com."
 
 ---
 
